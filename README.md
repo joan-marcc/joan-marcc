@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **colljoanmarc@gmail.com**
 
-- 📄 Know about my experiences www.linkedin.com/in/joan-marc-coll-barroso-275971255
+- 📄 Know about my experiences www.linkedin.com/in/joan-marc-coll
 
 
 <h3 align="left">Connect with me:</h3>
